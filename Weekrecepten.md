@@ -24,10 +24,10 @@ Geraspte kaas
 Tonijn broccoli 
 
 ### Quiche
-[https://www.ah.nl/allerhande/recept/R-R1190183/lentequiche-met-salami-puntpaprika-en-kruiden]
+[ah website](https://www.ah.nl/allerhande/recept/R-R1190183/lentequiche-met-salami-puntpaprika-en-kruiden)
 
 ### Mexicaanse traybake
-[https://www.ah.nl/allerhande/recept/R-R1193108/mexicaanse-traybake-met-witvis-en-zwarte-bonen]
+[ah website](https://www.ah.nl/allerhande/recept/R-R1193108/mexicaanse-traybake-met-witvis-en-zwarte-bonen)
 
 ## Week 3 juli t/m 9 juli
 Rond de 24 graden
