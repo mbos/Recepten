@@ -37,10 +37,10 @@ Gebakken reepjes kipfilet
 ### Lasagna
 
 ### Maaltijd pinda soep
-https://www.ah.nl/allerhande/recept/R-R627778/maaltijdpindasoep
+[AH website](https://www.ah.nl/allerhande/recept/R-R627778/maaltijdpindasoep)
 
 ### Rosti met salade
-https://www.24kitchen.nl/recepten/rosti-xxl
+[AH website](https://www.24kitchen.nl/recepten/rosti-xxl)
 
 ### BBQ
 Ribeye op de BBQ
