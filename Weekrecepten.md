@@ -1,5 +1,54 @@
 # Weekrecepten
 
+## week 17 juli t/m 23 juli
+
+### Ceasar salade
+1 krop romanasla
+2 eetlepel olijfolie
+1 teentje knoflook geperst
+50 gram vers geschaafde parmezaanse kaas
+2 witte of bruine boterhammen in blokjes gesneden
+2 plakken bacon/spek om uit te bakken
+Dressing
+
+1 eidooier
+1 teentje knoflook
+1 theelepel mosterd
+1 ansjovisfilet fijngesneden
+1 eetlepel azijn
+½ eetlepel worcestersaus
+50 ml zonnebloem olie
+50 ml olijfolie
+Klassieke ceasar salade maken
+Verwarm de oven voor op 160 graden
+Meng de olie met het geperste teentje knoflook en meng dit door de broodblokjes
+Leg de broodblokjes (croutons) op een bakplaat en zet ze in de voorverwarmde oven voor ongeveer 20-25 minuten tot ze lekker knapperig zijn
+Zet in de tussentijd een koekenpan op het vuur en bak hier de bacon/spek goed in uit tot de spek knapperig word, je moet het echt goed uitbakken zodat je het kan breken (dit kan eventueel ook in de oven na de croutons, zet de oven dan op 200 graden en leg de plakken spek op de bakplaat en bak minimaal 15 minuten) laat daarna uitlekken op keukenpapier
+Was de sla en scheur de slabladeren in grove stukken en doe het in een grote schaal
+Maak een dressing door 1 eidooier te mengen met de mosterd, azijn en het uitgeperste teentje knoflook   en roer alles goed door Terwijl je blijft roeren voeg je druppelsgewijs de olie toe tot je een dikke romige dressing krijgt
+Voeg dan de worcestersaus en de ragfijngesneden ansjovies toe en maak hier de sla mee aan
+(eventueel kun je ook alles in de keukenmachine tegelijk mengen tot een gladde saus)
+Verdeel de sla dan over de borden en bestrooi met de croutons, parmezaan schilfers en de in stukjes gebroken uitgebakken spek
+Optionele extra toevoegingen:
+
+Gekookt ei in 4en gesneden
+Gebakken reepjes kipfilet
+
+### Lasagna
+
+### Maaltijd pinda soep
+https://www.ah.nl/allerhande/recept/R-R627778/maaltijdpindasoep
+
+### Rosti met salade
+https://www.24kitchen.nl/recepten/rosti-xxl
+
+### BBQ
+Ribeye op de BBQ
+Sous vide 56 graden
+2cm is een 1 uur
+gepofte aardappel met philidelphia (kruimige aardappel)
+Salade
+
 ## week 10 juli t/m 16 juli
 25 graden
 Vrijdag zijn de kids niet thuis met eten
@@ -10,7 +59,7 @@ Conclusion boek blz 58
 salade
 Patatjes
 
-### Tortilla bakjes:
+### Tortilla bakjes @done
 Gehakt
 Mais
 Rauwe ham
@@ -26,7 +75,7 @@ Tonijn broccoli
 ### Quiche
 [https://www.ah.nl/allerhande/recept/R-R1190183/lentequiche-met-salami-puntpaprika-en-kruiden]
 
-### Mexicaanse traybake
+### Mexicaanse traybake @done
 [https://www.ah.nl/allerhande/recept/R-R1193108/mexicaanse-traybake-met-witvis-en-zwarte-bonen]
 
 ## Week 3 juli t/m 9 juli
